@@ -1,1 +1,1 @@
-# shethyatna.github.io
+# Jainism.com 
